@@ -1,2 +1,0 @@
-# FE-fallen-angels-by-ted_txt2
-Skylestroderposlenhomenfuckleyleuteypuypeylickmydick
